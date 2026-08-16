@@ -1,6 +1,6 @@
 Hi, I’m Ihor 👋
 
-I am the founder of Pass YEVI.
+I am the founder at Pass YEVI.
 
 📫 Connect With Me:
 
